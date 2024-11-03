@@ -14,13 +14,13 @@ Phighting, Regretevator, Pressure, Resident Evil, Genloss, ATSV/ITSV. I'm a robl
 ![image](https://github.com/user-attachments/assets/68dd7473-d6be-4876-ab89-6bd988871ca5)
 
 ⦇MUSIC RECOMMENDATIONS⦈　
-∘ PHIGHTING!OST . 
-∘ SPIDER-MAN OFFICIAL PLAYLIST . SPOTIFY . 
-∘ RUNNING FROM THE INTERNET . 
-∘ BEACH BUNNY .
-∘ BRUNO MARS . 
-∘ GRIMES .
-∘ JNHYGS . 
+- ∘ PHIGHTING!OST . 
+- ∘ SPIDER-MAN OFFICIAL PLAYLIST . SPOTIFY . 
+- ∘ RUNNING FROM THE INTERNET . 
+- ∘ BEACH BUNNY .
+- ∘ BRUNO MARS . 
+- ∘ GRIMES .
+- ∘ JNHYGS . 
 
 ![image](https://github.com/user-attachments/assets/85d69d32-45a6-423e-b493-ce400b02d868)
 
