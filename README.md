@@ -6,10 +6,10 @@
 ![image](https://github.com/user-attachments/assets/00b8456b-4e93-4088-8b17-9bfbab8a23d8) 
 ◜ ͡ ◝ 
 Name's Merry, or you can call me valk! I don't mind either!
-⟢ PRONOUNS : They/Them . Any prnss aside from she are aight with me! 
-ꔫ INTERESTS : I have multiple, golly! But the main ones are : 
+- ⟢ PRONOUNS : They/Them . Any prnss aside from she are aight with me! 
+- ꔫ INTERESTS : I have multiple, golly! But the main ones are : 
 Phighting, Regretevator, Pressure, Resident Evil, Genloss, ATSV/ITSV. I'm a roblox nerd, call me out if ya want!
-✩ I do play many other games and watch other shows! Say for example murder drones. 
+- ✩ I do play many other games and watch other shows! Say for example murder drones. 
 ◟ ͜ ◞
 ![image](https://github.com/user-attachments/assets/68dd7473-d6be-4876-ab89-6bd988871ca5)
 
