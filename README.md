@@ -21,6 +21,8 @@ Phighting, Regretevator, Pressure, Resident Evil, Genloss, ATSV/ITSV. I'm a robl
 - ∘ BRUNO MARS . 
 - ∘ GRIMES .
 - ∘ JNHYGS . 
+[![spotify-github-profile](https://open.spotify.com/track/74nAHbfAb8TCEzPYiClPvc)
+
 
 ![image](https://github.com/user-attachments/assets/85d69d32-45a6-423e-b493-ce400b02d868)
 
