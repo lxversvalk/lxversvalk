@@ -1,6 +1,6 @@
 ## ★ WHAT'S GOOD PHIGHTERS ?! 
 - Care to see my introduction? 
-. xoxo i love my partner melody
+. xoxo i love my partner melony
 
 - WELL YOU'RE IN FOR A TREAT ! 
 ![image](https://github.com/user-attachments/assets/00b8456b-4e93-4088-8b17-9bfbab8a23d8) 
