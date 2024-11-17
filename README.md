@@ -2,6 +2,8 @@
 - Care to see my introduction? 
 . xoxo i love my partner melony
 
+![](https://komarev.com/ghpvc/?username=your-github-username)
+
 - WELL YOU'RE IN FOR A TREAT ! 
 ![image](https://github.com/user-attachments/assets/00b8456b-4e93-4088-8b17-9bfbab8a23d8) 
 ◜ ͡ ◝ 
@@ -21,8 +23,6 @@ Phighting, Regretevator, Pressure, Resident Evil, Genloss, ATSV/ITSV. I'm a robl
 - ∘ BRUNO MARS . 
 - ∘ GRIMES .
 - ∘ JNHYGS . 
-
-![](https://komarev.com/ghpvc/?username=your-github-username)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lox46ruvbmdjuyjidxvyr3smwq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 
