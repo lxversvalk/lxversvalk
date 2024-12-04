@@ -1,38 +1,20 @@
-## ★ WHAT'S GOOD PHIGHTERS ?! 
-- Care to see my introduction? 
-. xoxo i love my partner melony
+
+![tumblr_f3840fc424ca1462da9b372278eb0093_0415b2cf_640](https://github.com/user-attachments/assets/a9a8aca3-fc81-4e9c-8b1e-4e9b09a8cc77)
 
 ![](https://komarev.com/ghpvc/?username=your-github-username)
 
-- WELL YOU'RE IN FOR A TREAT ! 
-![image](https://github.com/user-attachments/assets/00b8456b-4e93-4088-8b17-9bfbab8a23d8) 
-◜ ͡ ◝ 
-Name's Merry, or you can call me valk! I don't mind either!
-- ⟢ PRONOUNS : They/Them . Any prnss aside from she are aight with me! 
-- ꔫ INTERESTS : I have multiple, golly! But the main ones are : 
-Phighting, Regretevator, Pressure, Resident Evil, Genloss, ATSV/ITSV. I'm a roblox nerd, call me out if ya want!
-- ✩ I do play many other games and watch other shows! Say for example murder drones. 
-◟ ͜ ◞
-![image](https://github.com/user-attachments/assets/68dd7473-d6be-4876-ab89-6bd988871ca5)
+☆ ︶︶︶ ౿ ָ 🎀 𞥊 ︶︶︶ ☆
 
-⦇MUSIC RECOMMENDATIONS⦈　
-- ∘ PHIGHTING!OST . 
-- ∘ SPIDER-MAN OFFICIAL PLAYLIST . SPOTIFY . 
-- ∘ RUNNING FROM THE INTERNET . 
-- ∘ BEACH BUNNY .
-- ∘ BRUNO MARS . 
-- ∘ GRIMES .
-- ∘ JNHYGS . 
+; SCYTHE
+> ask 4 my age if you'd like.  ๋࣭ ⭑ he/they
+- જ⁀➴ dni : basic dni criteria, fakeclaimers, homos blah blah you get it. ೀ byi : system, uses tonetags, can be toxic sometimes  ೀ int : other systems, phighting phans, if you have the same interests as me 
+> [carrd](https://lxversvalk.carrd.co/) for more info .ᐟ ₊˚⊹ ᰔ
+
+- ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
+
+![image](https://github.com/user-attachments/assets/ca9531b9-fd0f-477e-9139-afde08fffe02)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lox46ruvbmdjuyjidxvyr3smwq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
-
-![image](https://github.com/user-attachments/assets/85d69d32-45a6-423e-b493-ce400b02d868)
-
-![image](https://github.com/user-attachments/assets/2c324d87-b730-4ef1-b481-2c96e6154bc9)
-
-
-
-
 <!--
 **lxversvalk/lxversvalk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
