@@ -14,6 +14,10 @@
 
 ![image](https://github.com/user-attachments/assets/ca9531b9-fd0f-477e-9139-afde08fffe02)
 
+>partner sys <33 ↷
+
+![SPOILER_image](https://github.com/user-attachments/assets/10ebc60e-9194-4a79-b604-eabdda46819b)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lox46ruvbmdjuyjidxvyr3smwq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 <!--
 **lxversvalk/lxversvalk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
