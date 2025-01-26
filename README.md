@@ -10,7 +10,7 @@
 - ✩°｡⋆ __taken__ 𐙚 he/they ⋆｡° ✮
 -  ࣪˖ ִֶָ𐀔 , nice 2 meet ya! i'm sonic the host and i love eating... CHILLI DAWGS!!! .silly ''★⋆˙ <𝟑
 
--  ⊹  1 . (strawpage wip) ୨♡୧ 2 . [tt](https://www.tiktok.com/@phighterlxvr) ⊹ 3 . [pinterest](https://za.pinterest.com/scythevalk/)
+-  ⊹  1 . [strawpage](https://sonicvalk.straw.page/) ୨♡୧ 2 . [tt](https://www.tiktok.com/@phighterlxvr) ⊹ 3 . [pinterest](https://za.pinterest.com/scythevalk/)
 
 ![634eabd54ffbc8c6e3a9cadc77f403ad](https://github.com/user-attachments/assets/2e853d6f-8897-45cc-8c61-bfec9fe8828c)
 
