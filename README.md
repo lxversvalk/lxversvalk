@@ -13,6 +13,7 @@
 -  ⊹  1 . [strawpage](https://sonicvalk.straw.page/) ୨♡୧ 2 . [tt](https://www.tiktok.com/@phighterlxvr) ⊹ 3 . [pinterest](https://za.pinterest.com/scythevalk/)
 
 ![634eabd54ffbc8c6e3a9cadc77f403ad](https://github.com/user-attachments/assets/2e853d6f-8897-45cc-8c61-bfec9fe8828c)
+![4fda34dedf0d35430f4d723888db6182](https://github.com/user-attachments/assets/f126f8e1-10d9-4a6f-8339-5f8f69cf5ec0)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lox46ruvbmdjuyjidxvyr3smwq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
