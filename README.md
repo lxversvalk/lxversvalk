@@ -1,8 +1,8 @@
 <p align="center">
 
-![34c09577e6f7604595e039f37a5fd9da-removebg-preview](https://github.com/user-attachments/assets/d9ae9a0a-d7f3-4bc1-a733-1af24ef1d1e8)
+![bafkreid3vvvm642o7gbqevk6gfa66orjyemklqqx2csxq4puzlbwc6zmoa](https://github.com/user-attachments/assets/1fbeb6cc-13fa-4b39-bff9-241ff90a9b48)
 
- ![](https://komarev.com/ghpvc/?username=your-github-username&color=ff0072)
+ ![](https://komarev.com/ghpvc/?username=your-github-username&color=f5c4a5)
 </p>
 
 
