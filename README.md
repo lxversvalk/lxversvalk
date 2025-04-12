@@ -1,6 +1,7 @@
 <p align="center">
- hi !! >_<
-don't be afraid to interact !!
+ hi !! ^_^
+
+                                ♰ ❝ finally, we have some similar thoughts. ❞ 
 
 </p>
 
@@ -11,6 +12,11 @@ don't be afraid to interact !!
 <p align="center">
     <img width="400" src="https://static.wikia.nocookie.net/hoducks/images/8/8c/Starchasm_Nyx.png/revision/latest?cb=20240212200514" alt="veliona">
 </p>
+
+<p align="center">
+    <img width="400" src="https://upload-os-bbs.hoyolab.com/upload/2022/05/16/161174793/149e9935998c33bb713382dc288fa031_4264621699368411342.png" alt="veliona2">
+</p>
+
 
 
 
