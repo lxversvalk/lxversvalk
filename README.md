@@ -1,13 +1,17 @@
 <p align="center">
  HIII :) 
-silly rep..ough.. uh. i go by valentine or rue ! any prns are fine 
+dnc my skins ; i sit mostly by the sth area or you can see me in parties :) 
 
-                                 ❝ FEEL FREE TO INTERACT BUT BEWARE I MIGHT JUST BE TOXIC ❞ 
+                                 ❝ im friendly most of the time i prommy! ❞ 
 
 </p>
 
 <p align="center">
-    <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&color=d5030a" alt="views count">
+    <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&color=bc1c11" alt="views count">
+</p>
+
+<p align="center">
+<img width="400" height="400" src="https://files.catbox.moe/sy1es0.webp">
 </p>
 
 
