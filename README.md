@@ -16,5 +16,12 @@ dnc my skins ; i sit mostly by the sth area or you can see me in parties :)
 </p>
 
 
+<p align="center">
+
+https://github.com/user-attachments/assets/7838d16c-b3c2-4c5a-b9c4-cd190c4c4c96
+
+</p>
+
+
 
 
