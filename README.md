@@ -12,7 +12,7 @@ dnc my skins ; i sit mostly by the sth area or you can see me in parties :)
 
 <p align="center">
 <img width="400" height="400" src="https://files.catbox.moe/sy1es0.webp">
-<img width="400" height="400" src="https://i.pinimg.com/736x/cb/32/1b/cb321bdf5a49df3c7d0f9b6790d26a2f.jpg">
+<img width="400" height="400" src="https://pbs.twimg.com/media/Gwu90_XaoAAJJg6?format=jpg&name=medium">
 </p>
 
 
